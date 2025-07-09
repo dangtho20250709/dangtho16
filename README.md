@@ -10,4 +10,4 @@
 
 本平台汇聚了丰富的亚洲国产精品成人综合资源，内容涵盖多样化题材与风格。用户可通过详细的影片分类和标签，快速找到心仪的视频。每个视频页面配有时长、演员及画质信息，支持高清播放，并根据网络条件智能调整清晰度，保障流畅的观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangtho20250709/dangtho16 ）</span>
